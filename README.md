@@ -1,2 +1,5 @@
 # wine
-Tracking the 🍷 I encounter for lolz
+
+| Name | Date | Thoughts |
+| --- | --- | --- |
+| a | a | a |
