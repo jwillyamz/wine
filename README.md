@@ -3,3 +3,4 @@
 | Name | Date | Thoughts |
 | --- | --- | --- |
 | a | a | a |
+|  |  |  |
