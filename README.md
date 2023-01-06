@@ -10,6 +10,6 @@
 | Saint Emilion Grand Cru Les Charmes de Grand Corbin 16' | 31DEC22 | medium to fuller body and oaky, raspberry(ish) + serious tannins, strong but clean finish |
 | Del Dotto Cinghiale Vineyard Pinot Noir, 17` | 1JAN23 | Medium body and very nice balance, slight vanilla notes, red fruit finish |
 | Hess Mount Veeder Estate Cabernet Sauvignon, 14' | 1JAN23 | pleasantly lighter body for a Napa cab, tart cherries, velvet and maybe leather finish |
-| 2005 Le Vieux Donjon, Grenache Blend, Châteauneuf-du-Pape | 5JAN23 | Pepper and ripe fruit (plum?), higher acid, finish reminds me of citrus and tobacco |
+| 2005 Le Vieux Donjon, Grenache Blend, Châteauneuf-du-Pape | 5JAN23 | Pepper and ripe fruit (plum-y and cherry?), higher acid, finish reminds me of citrus and tobacco |
 |  |  |  |
 |  |  |  |
