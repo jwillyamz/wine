@@ -12,5 +12,6 @@
 | Hess Mount Veeder Estate Cabernet Sauvignon, 14' | 1JAN23 | pleasantly lighter body for a Napa cab, tart cherries, velvet and maybe leather finish |
 | 2005 Le Vieux Donjon, Grenache Blend, Châteauneuf-du-Pape | 5JAN23 | Pepper and ripe fruit (plum-y and cherry?), higher acid, finish reminds me of citrus and tobacco |
 | Lauverjat Moulin de Vrillères, Sancerre Pinot Noir, 19' | 7JAN23 | tart cherry and floral, light to almost delicate body(?), fleeting finish with notes of orange peel |
+| Viña Real Crianza Rioja, 18' | 8JAN23 | plum and bitter chocolate, medium body and higher tannins, smooth finish reminds me of coffee |
 |  |  |  |
 |  |  |  |
