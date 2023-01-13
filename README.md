@@ -13,5 +13,6 @@
 | 2005 Le Vieux Donjon, Grenache Blend, Châteauneuf-du-Pape | 5JAN23 | Pepper and ripe fruit (plum-y and cherry?), higher acid, finish reminds me of citrus and tobacco |
 | Lauverjat Moulin de Vrillères, Sancerre Pinot Noir, 19' | 7JAN23 | tart cherry and floral, light to almost delicate body(?), fleeting finish with notes of orange peel |
 | Viña Real Crianza Rioja, 18' | 8JAN23 | plum and bitter chocolate, medium body and higher tannins, smooth finish reminds me of coffee |
+| 2019 Borja Perez, Listán Negro, ‘Artifice’ Ycoden-Daute-Isora, Tenerife, Canary Islands, ESP | 13JAN23 | funky pepper and minerals 🤘, crisp tart body, lovely bright finish |
 |  |  |  |
 |  |  |  |
