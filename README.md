@@ -17,5 +17,6 @@
 | 2000 Ktima Kir-Yianni, Xinomavro/Merlot/Syrah, ‘Yianakohori,’ Imathia, Naoussa, GRC | 13JAN23 | raspberry and cherry, very nice balance and tannins, higher acid |
 | 2018 Clos Siguier, Côt (Malbec,) ‘Les Camille,’ Vieilles Vignes, Cahors, Southwest, FRA | 13JAN23 | red fruit and heavier tannins, heavier body but still medium(ish), oaky complete finish|
 | 2020 Bedrock Wine Co., Zinfandel, ‘Old Vine,’ California, USA | 13JAN23 | plum fruit flavor, higher acid, especially on the finish, approachable but probably boutique in terms of fans |
+| 2018 Domaine Labranche Laffont, Tannat Blend, ‘Tradition,’ Madiran, Southwest, FRA  | 14JAN23 | red fruit and higher acid, nicer balance but heavier finish, late tannins but not overwhelming |
 |  |  |  |
 |  |  |  |
