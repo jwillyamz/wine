@@ -16,5 +16,6 @@
 | 2019 Borja Perez, Listán Negro, ‘Artifice’ Ycoden-Daute-Isora, Tenerife, Canary Islands, ESP | 13JAN23 | funky pepper and minerals 🤘, crisp tart body, lovely bright finish |
 | 2000 Ktima Kir-Yianni, Xinomavro/Merlot/Syrah, ‘Yianakohori,’ Imathia, Naoussa, GRC | 13JAN23 | raspberry and cherry, very nice balance and tannins, higher acid |
 | 2018 Clos Siguier, Côt (Malbec,) ‘Les Camille,’ Vieilles Vignes, Cahors, Southwest, FRA | 13JAN23 | red fruit and heavier tannins, heavier body but still medium(ish), oaky complete finish|
+| 2020 Bedrock Wine Co., Zinfandel, ‘Old Vine,’ California, USA | 13JAN23 | plum fruit flavor, higher acid, especially on the finish, approachable but probably boutique in terms of fans |
 |  |  |  |
 |  |  |  |
