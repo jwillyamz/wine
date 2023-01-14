@@ -18,5 +18,6 @@
 | 2018 Clos Siguier, Côt (Malbec,) ‘Les Camille,’ Vieilles Vignes, Cahors, Southwest, FRA | 13JAN23 | red fruit and heavier tannins, heavier body but still medium(ish), oaky complete finish|
 | 2020 Bedrock Wine Co., Zinfandel, ‘Old Vine,’ California, USA | 13JAN23 | plum fruit flavor, higher acid, especially on the finish, approachable but probably boutique in terms of fans |
 | 2018 Domaine Labranche Laffont, Tannat Blend, ‘Tradition,’ Madiran, Southwest, FRA  | 14JAN23 | red fruit and higher acid, nicer balance but heavier finish, late tannins but not overwhelming |
+| Shalauri Saperavi, 19' | 14JAN23 | plum and chocolate, higher alcohol and tannins, slightly spicey on the finish (like tea) |
 |  |  |  |
 |  |  |  |
