@@ -20,6 +20,6 @@
 | 2018 Domaine Labranche Laffont, Tannat Blend, ‘Tradition,’ Madiran, Southwest, FRA  | 14JAN23 | red fruit and higher acid, nicer balance but heavier finish, late tannins but not overwhelming |
 | Shalauri Saperavi, 19' | 14JAN23 | plum and chocolate, higher alcohol and tannins, slightly spicey on the finish (like tea) |
 | Poochi Poochi, Junmai | 14JAN23 | mango and tropical fruit, really pleasant finish that reminds me of baked goods, slight sparkle but very balanced sake |
-| La Colombiere Pet-nat Brut Nature, 21' | 14JAN23 | bread and tropical fruit, bright and crisp, clean and smooth with quasi floral finish |
+| La Colombiere Pet-nat Brut Nature, 21' | 14JAN23 | bread and tropical fruit, bright and crisp, clean and smooth (honey!!) with quasi floral finish |
 |  |  |  |
 |  |  |  |
