@@ -19,5 +19,6 @@
 | 2020 Bedrock Wine Co., Zinfandel, ‘Old Vine,’ California, USA | 13JAN23 | plum fruit flavor, higher acid, especially on the finish, approachable but probably boutique in terms of fans |
 | 2018 Domaine Labranche Laffont, Tannat Blend, ‘Tradition,’ Madiran, Southwest, FRA  | 14JAN23 | red fruit and higher acid, nicer balance but heavier finish, late tannins but not overwhelming |
 | Shalauri Saperavi, 19' | 14JAN23 | plum and chocolate, higher alcohol and tannins, slightly spicey on the finish (like tea) |
+| Poochi Poochi, Junmai | 14JAN23 | mango and tropical fruit, really pleasant finish that reminds me of baked goods, slight sparkle but very balanced sake |
 |  |  |  |
 |  |  |  |
