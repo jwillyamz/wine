@@ -23,5 +23,6 @@
 | La Colombiere Pet-nat Brut Nature, 21' | 14JAN23 | bread and tropical fruit, bright and crisp, clean and smooth (honey!!) with quasi floral finish |
 | BEAUJOLAIS, DOMAINE DE FA FLEURIE 2016 | 15JAN23 | very nicely balanced red fruit and black pepper, smooth medium body with silkier finish, we paired with 🍣 |
 | 2021 Birichino, Cinsault, ‘Vignes Centenaires,’ Bechtold Vineyard, Santa Cruz, Cali., USA | 16JAN23 | deep but very clean red fruit, medium body with lower oak & tannins, ✅ summer red | 
+| 2020 Domaine Brocourt, Cabernet Franc, Vieilles Vignes, Chinon, Loire Valley, FRA | 16JAN23 | bell pepper and spices, much more balanced than the smell, higher alcohol and tannins (might mellow with age, but overall yummy)|
 |  |  |  |
 |  |  |  |
