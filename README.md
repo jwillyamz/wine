@@ -22,5 +22,6 @@
 | Poochi Poochi, Junmai | 14JAN23 | mango and tropical fruit, really pleasant finish that reminds me of baked goods, slight sparkle but very balanced sake |
 | La Colombiere Pet-nat Brut Nature, 21' | 14JAN23 | bread and tropical fruit, bright and crisp, clean and smooth (honey!!) with quasi floral finish |
 | BEAUJOLAIS, DOMAINE DE FA FLEURIE 2016 | 15JAN23 | very nicely balanced red fruit and black pepper, smooth medium body with silkier finish, we paired with 🍣 |
+| 2021 Birichino, Cinsault, ‘Vignes Centenaires,’ Bechtold Vineyard, Santa Cruz, Cali., USA | 16JAN23 | deep but very clean red fruit, medium body with lower oak & tannins, ✅ summer red | 
 |  |  |  |
 |  |  |  |
