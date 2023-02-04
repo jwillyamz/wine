@@ -26,5 +26,6 @@
 | 2020 Domaine Brocourt, Cabernet Franc, Vieilles Vignes, Chinon, Loire Valley, FRA | 16JAN23 | bell pepper + floral + spiced, much more balanced than the smell, higher alcohol and tannins (might mellow with age, but overall yummy)|
 | 2020 Markogianni, Vertzami, ‘Diagon,’ Peloponnese, GRC | 16JAN23 | very ripe blackberry + plum(?), heavier medium body, really amazing and distinctly Grecian finish |
 | Domaine Michel Juillot Mercurey Le Meix Juillot, 17' | 24JAN23 | analyst comment: user was talking too much to take proper notes, but remembers the wine was ok++ |
+| Podere Castorani Cadetto Montepulciano d'Abruzzo, 17' | 3FEB23 |  |
 |  |  |  |
 |  |  |  |
