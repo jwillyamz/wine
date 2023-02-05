@@ -29,6 +29,6 @@
 | Podere Castorani Cadetto Montepulciano d'Abruzzo, 17' | 3FEB23 | dark fruits + vanilla + tobacco, spiced but still smooth(ish), higher acid but fruit pops on the finish |
 | Cháteau Guiraud Sauternes, 16' | 3FEB23 | cool floral honey, sweet notes but not overwhelming, bright crisp finish |
 | Alma Negra Malbec Rosé | 4FEB23 | crisp apricot, high acid, long finish rides through all the fruit profiles |
-| Miguel Torres Vigno Huerta Maule Old Vines Carignan, 18' | 5FEB23 |  |
+| Miguel Torres Vigno Huerta Maule Old Vines Carignan, 18' | 5FEB23 | ripe red fruit and (white) pepper, acidic almost grapefruit notes towards finish, really neat hybrid of flavors (especially for a red) |
 |  |  |  |
 |  |  |  |
