@@ -28,5 +28,6 @@
 | Domaine Michel Juillot Mercurey Le Meix Juillot, 17' | 24JAN23 | analyst comment: user was talking too much to take proper notes, but remembers the wine was ok++ |
 | Podere Castorani Cadetto Montepulciano d'Abruzzo, 17' | 3FEB23 | dark fruits + vanilla + tobacco, spiced but still smooth(ish), higher acid but fruit pops on the finish |
 | Cháteau Guiraud Sauternes, 16' | 3FEB23 | cool floral honey, sweet notes but not overwhelming, bright crisp finish |
+| Alma Negra Malbec Rosé | 4FEB23 | crisp apricot, high acid, long finish rides through all the fruit profiles |
 |  |  |  |
 |  |  |  |
