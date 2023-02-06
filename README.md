@@ -30,6 +30,6 @@
 | Cháteau Guiraud Sauternes, 16' | 3FEB23 | cool floral honey, sweet notes but not overwhelming, bright crisp finish |
 | Alma Negra Malbec Rosé | 4FEB23 | crisp apricot, high acid, long finish rides through all the fruit profiles |
 | Miguel Torres Vigno Huerta Maule Old Vines Carignan, 18' | 5FEB23 | ripe red fruit and (white) pepper, acidic almost grapefruit notes towards finish, really neat hybrid of flavors (especially for a red) |
-|  |  |  |
+| Hess The Lion Mount Veeder Cabernet Sauvignon, 18' | 5FEB23 | vanilla and baking spice, pleasantly rounded but BOLD profile (Napa amirite), long complex finish reveals red fruits |
 |  |  |  |
 |  |  |  |
