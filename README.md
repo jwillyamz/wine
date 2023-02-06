@@ -32,3 +32,4 @@
 | Miguel Torres Vigno Huerta Maule Old Vines Carignan, 18' | 5FEB23 | ripe red fruit and (white) pepper, acidic almost grapefruit notes towards finish, really neat hybrid of flavors (especially for a red) |
 |  |  |  |
 |  |  |  |
+|  |  |  |
