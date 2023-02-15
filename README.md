@@ -33,5 +33,6 @@
 | Hess The Lion Mount Veeder Cabernet Sauvignon, 18' | 5FEB23 | vanilla and baking spice, pleasantly rounded but BOLD profile (Napa amirite), long complex finish reveals red fruits |
 | Elio Perrone Bigaro Rose, 20' | 14FEB23 | crispy fruit and full of honey, semi-sweet but not overwhelming, tastes like sparkling ice-wine |
 | 2019 Red Newt Cellars, Cabernet Franc, Finger Lakes, New York, USA | 14FEB23 | tobacco and dark fruits, lovely balance and consistent depth, sharp precise finish |
+| 2018 Lieu Dit, Gamay, Santa Maria Valley, Santa Barbara, California, USA | 14FEB23 | brighter fruits (almost tart) followed by bell pepper(?), knew this would be unique but rely kewl, fruit-forward finish makes this an easier drinker |
 |  |  |  |
 |  |  |  |
