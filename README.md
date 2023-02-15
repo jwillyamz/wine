@@ -32,5 +32,6 @@
 | Miguel Torres Vigno Huerta Maule Old Vines Carignan, 18' | 5FEB23 | ripe red fruit and (white) pepper, acidic almost grapefruit notes towards finish, really neat hybrid of flavors (especially for a red) |
 | Hess The Lion Mount Veeder Cabernet Sauvignon, 18' | 5FEB23 | vanilla and baking spice, pleasantly rounded but BOLD profile (Napa amirite), long complex finish reveals red fruits |
 | Elio Perrone Bigaro Rose, 20' | 14FEB23 | crispy fruit and full of honey, semi-sweet but not overwhelming, tastes like sparkling ice-wine |
+| 2019 Red Newt Cellars, Cabernet Franc, Finger Lakes, New York, USA | 14FEB23 | pepper and dark fruits, lovely balance and consistent depth, sharp precise finish |
 |  |  |  |
 |  |  |  |
