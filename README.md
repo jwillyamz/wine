@@ -35,7 +35,7 @@
 | 2019 Red Newt Cellars, Cabernet Franc, Finger Lakes, New York, USA | 14FEB23 | tobacco and dark fruits, lovely balance and consistent depth, sharp precise finish |
 | 2018 Lieu Dit, Gamay, Santa Maria Valley, Santa Barbara, California, USA | 14FEB23 | brighter fruits (almost tart) followed by bell pepper(?), knew this would be unique but rely kewl, fruit-forward finish makes this an easier drinker |
 | 2021 Kir-Yianni, Xinomavro Rosé, Sec, ‘Akakies,’ Amyndeon, Macedonia, GRC | 14FEB23 | crisp with smooth grape candy flavor, ideal fruit-forward finish, probably a great summer drinker ☀️ |
-| Monastrell "Raspay" Primitivo Quiles Alicante, 14' | 25FEB23 |  |
+| Monastrell "Raspay" Primitivo Quiles Alicante, 14' | 25FEB23 | really fun, described as port adjacent but drinks more approachable, chery and dark red fruits |
 | Sparkling Syrah Treveri Columbia Valley| 25FEB23 | sparking red ❤️, tart cherry and citrus, very clean yet well rounded and nuanced, crisp bright finish |
 |  |  |  |
 |  |  |  |
