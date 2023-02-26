@@ -37,5 +37,6 @@
 | 2021 Kir-Yianni, Xinomavro Rosé, Sec, ‘Akakies,’ Amyndeon, Macedonia, GRC | 14FEB23 | crisp with smooth grape candy flavor, ideal fruit-forward finish, probably a great summer drinker ☀️ |
 | Monastrell "Raspay" Primitivo Quiles Alicante, 14' | 25FEB23 | really fun, described as port adjacent but drinks more approachable, chery and dark red fruits |
 | Sparkling Syrah Treveri Columbia Valley| 25FEB23 | sparking red ❤️, tart cherry and citrus, very clean yet well rounded and nuanced, crisp bright finish |
+| Braucol Le Champ d'Orphée, 19' | 25FEB23 | black and bell pepper funkiness, smooth plum and minerals, subtle pleasant finish |
 |  |  |  |
 |  |  |  |
