@@ -40,7 +40,7 @@
 | Braucol Le Champ d'Orphée, 19' | 25FEB23 | black and bell pepper funkiness, smooth plum and minerals, subtle pleasant finish |
 | 2018 Peay, Syrah, “La Bruma,” Sonoma Coast, California, USA | 26FEB23 | smooth red fruit, slight tart but deep plum, really balanced and clean finish| 
 | ‘19 VINKARA | 3MAR23 | medium bodied and full of red fruit, nice balance of black pepper and tannins, stronger finish brings back the spice |
-|  |  |  |
+| '21 MITRAVELAS | 3MAR23 | neat flow from tart cherry to deep plum, heavy tannins and oak, long oaky finish |
 |  |  |  |
 |  |  |  |
 |  |  |  |
