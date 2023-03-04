@@ -42,8 +42,8 @@
 | ‘19 VINKARA | 3MAR23 | medium bodied and full of red fruit, nice balance of black pepper and tannins, stronger finish brings back the spice |
 | '21 MITRAVELAS | 3MAR23 | neat flow from tart cherry to deep plum, heavy tannins and oak, long oaky finish |
 | '18 CHATEAU KSARA | 3MAR23 | deep plum and peppers, slight vanilla and baking notes, finish pops with red stone fruits |
-| 2016 Reflets de Cissac (Château Cissac) | 3MAR23 | plum and vanilla, really nice complexity and finish, oaky oaky oaky |
-|  |  |  |
+| 2016 Reflets de Cissac (Château Cissac) Cab Sauv/Merlot/Petit Verdot | 3MAR23 | plum and vanilla, really nice complexity and finish, 🇫🇷 oak 👌 |
+| 2016 Château Rahoul, Sémillon/Sauvignon Blanc | 3MAR23 | minerals leads towards a slight pop of sour fruit, creamy inviting body, lovely smooth finish |
 |  |  |  |
 |  |  |  |
 |  |  |  |
