@@ -44,6 +44,12 @@
 | '18 CHATEAU KSARA Cabernet Sauvignon/Syrah/Cabernet Franc | 3MAR23 | deep plum and peppers, slight vanilla and baking notes, finish pops with red stone fruits |
 | 2016 Reflets de Cissac (Château Cissac) Cab Sauv/Merlot/Petit Verdot | 3MAR23 | plum and vanilla, really nice complexity and finish, 🇫🇷 oak 👌 |
 | 2016 Château Rahoul, Sémillon/Sauvignon Blanc | 3MAR23 | minerals leads towards a slight pop of sour fruit, creamy inviting body, lovely smooth finish |
+| 2016 Rolet, Poulsard/Gamay/Pinot Noir | 3MAR23 | floral on top of brighter red fruits (raspberry) , lighter medium body playing off the tart, longer finish highlights complexity into fruit |
+|  |  |  |
+|  |  |  |
+|  |  |  |
+|  |  |  |
+|  |  |  |
 |  |  |  |
 |  |  |  |
 |  |  |  |
