@@ -39,9 +39,9 @@
 | Sparkling Syrah Treveri Columbia Valley| 25FEB23 | sparking red ❤️, tart cherry and citrus, very clean yet well rounded and nuanced, crisp bright finish |
 | Braucol Le Champ d'Orphée, 19' | 25FEB23 | black and bell pepper funkiness, smooth plum and minerals, subtle pleasant finish |
 | 2018 Peay, Syrah, “La Bruma,” Sonoma Coast, California, USA | 26FEB23 | smooth red fruit, slight tart but deep plum, really balanced and clean finish| 
-| ‘19 VINKARA | 3MAR23 | medium bodied and full of red fruit, nice balance of black pepper and tannins, stronger finish brings back the spice |
-| '21 MITRAVELAS | 3MAR23 | neat flow from tart cherry to deep plum, heavy tannins and oak, long oaky finish |
-| '18 CHATEAU KSARA | 3MAR23 | deep plum and peppers, slight vanilla and baking notes, finish pops with red stone fruits |
+| ‘19 VINKARA Öküzgözü, Boğazkere | 3MAR23 | medium bodied and full of red fruit, nice balance of black pepper and tannins, stronger finish brings back the spice |
+| '21 MITRAVELAS Red on Black Agiorgitiko | 3MAR23 | neat flow from tart cherry to deep plum, heavy tannins and oak, long oaky finish |
+| '18 CHATEAU KSARA Cabernet Sauvignon/Syrah/Cabernet Franc | 3MAR23 | deep plum and peppers, slight vanilla and baking notes, finish pops with red stone fruits |
 | 2016 Reflets de Cissac (Château Cissac) Cab Sauv/Merlot/Petit Verdot | 3MAR23 | plum and vanilla, really nice complexity and finish, 🇫🇷 oak 👌 |
 | 2016 Château Rahoul, Sémillon/Sauvignon Blanc | 3MAR23 | minerals leads towards a slight pop of sour fruit, creamy inviting body, lovely smooth finish |
 |  |  |  |
