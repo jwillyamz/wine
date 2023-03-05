@@ -47,10 +47,6 @@
 | 2016 Rolet, Poulsard/Gamay/Pinot Noir | 3MAR23 | floral on top of brighter red fruits (raspberry) , lighter medium body playing off the tart, longer finish highlights complexity into fruit |
 | 2019 Château Saint Julian, Merlot/Cabernet Sauvignon | 3MAR23 | more complex than a typical merlot, peppers and depth, finish pops with a touch of cherry then back to balance |
 | 2005 Château d'Arche, Semillon/Sauvignon Blanc, Sauternes | 3MAR23 | smooooooth honey leading into bright fruit and caramel, ❤️❤️❤️, beautiful finish puts you to sleep with honey |
-|  |  |  |
-|  |  |  |
-|  |  |  |
-|  |  |  |
-|  |  |  |
-|  |  |  |
-|  |  |  |
+
+
+Notes might be too much work, enjoy the wine 🥂
